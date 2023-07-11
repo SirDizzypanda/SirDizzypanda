@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SirDizzypanda
-- 🌱 I’m currently learning mothing
+- 🌱 I’m currently learning nothing
 - 📫 You Can Reach Me From Discord
 
 <!---
