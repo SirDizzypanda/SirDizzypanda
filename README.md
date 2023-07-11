@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @SirDizzypanda
-- 👀 I’m interested in Astronomy
-- 🌱 I’m currently learning Nothing
-- 💞️ I’m looking to collaborate on No One
+- 🌱 I’m currently learning mothing
 - 📫 You Can Reach Me From Discord
 
 <!---
